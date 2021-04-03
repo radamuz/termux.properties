@@ -1,0 +1,1 @@
+<https://medium.com/@bloodbathalchemist/gu%C3%ADa-termux-manejando-el-environment-c900323be2a6>
